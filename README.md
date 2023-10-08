@@ -1,9 +1,6 @@
 🧀 Just a programmer trying to figure shit out 🧀 &nbsp;  
-
 🧀 I go by He/They 🧀 &nbsp;  
-
 🧀 Contact me on Discord 🧀 &nbsp;  
-
   ~User: doginaband &nbsp;  
   
 
