@@ -1,5 +1,5 @@
 🧀 Just a programmer trying to figure shit out 🧀 &nbsp;  
-🧀 I go by He/They 🧀 &nbsp;  
+🧀 I go by She/They 🧀 &nbsp;  
   
 
 <!--
